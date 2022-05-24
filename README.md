@@ -1,0 +1,2 @@
+# literate-octo-couscous
+Hello world…I’m just trying to tell the freedom fighters keeps existing(NBM)…I love black 🖤,just trying to let the world knows they’re some innocent ones in prison or somewhere hiding..The freedom fighters keep emphasizing on this,most of the youths and talented ones keep crying.which make them engage  in things they’re not interested in doing  e.g robbery,fraudulent,drugs dealers and so on.Freedom fighters are not meant to be kept in prison 👌,freedom fighters (NBM) motto-Equality and social justice..🖤✊🏾
